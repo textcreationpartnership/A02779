@@ -35,44 +35,32 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A discoursiue probleme concerning prophesies how far they are to be valued, or credited, according t
+
+1. The diſpoſition, or Method of the Tract following.
+
+1. To the Right Honorable eſpeciall good Lord, Sir CHRISTOPHER HATTON Knight, Lordhigh Chancelor of England.
+
+1. To the ſame Right Honorable very good Lord, Sir CHRISTOPHER HATTON Knight, Lord high Chancelor of England.
+
 #####Body#####
 
-1. The firſt part, or Section: diſcourſing in generall, of, and againſt ſuppoſed Propheſies, with all ſuch pretended Traditions.
+1. A DISCOVRSIVE PROBLEME, concerning Propheſies, HOW FARRE THEY ARE TO BE VAlued, or credited according to the ſureſt rules, and principles as well of Diuinitie, as of Philoſophie, and other Humanitie.
 
-    _ The Title, or Inſcription.
+    _ The firſt part, or Section: diſcourſing in generall, of, and againſt ſuppoſed Propheſies, with all ſuch pretended Traditions.
 
-    _ Vna ex ſelectiſſimis Prophetijs Ambroſij Merlini.
+      * The Title, or Inſcription.
 
-    _ The Concluſion, or Epilog of the former Section.
+      * Vna ex ſelectiſſimis Prophetijs Ambroſij Merlini.
 
-    _ The famous Propheſie of 88. vulgarly fathered vpon Ioannes Regiomontanus; but woorthily ſuſpected by ſome learnedermen, neuer to haue proceeded from that excellent Mathematician, or any like notable Scholler.
+      * The Concluſion, or Epilog of the former Section.
 
-    _ The concluſion of this latter part.
+    _ THE SECOND PART, OR SECTION: ſpecially examining and diſcuſſing the ſpeciall Propheſie of this famous yeere, 1588.
 
-1. THE SECOND PART, OR SECTION: ſpecially examining and diſcuſſing the ſpeciall Propheſie of this famous yeere, 1588.
+      * The famous Propheſie of 88. vulgarly fathered vpon Ioannes Regiomontanus; but woorthily ſuſpected by ſome learnedermen, neuer to haue proceeded from that excellent Mathematician, or any like notable Scholler.
 
-    _ The Title, or Inſcription.
+      * The concluſion of this latter part.
 
-    _ Vna ex ſelectiſſimis Prophetijs Ambroſij Merlini.
-
-    _ The Concluſion, or Epilog of the former Section.
-
-    _ The famous Propheſie of 88. vulgarly fathered vpon Ioannes Regiomontanus; but woorthily ſuſpected by ſome learnedermen, neuer to haue proceeded from that excellent Mathematician, or any like notable Scholler.
-
-    _ The concluſion of this latter part.
-
-1. Eiuſdem Ioannis Harueij Epiphonematicum votum, ad auertendum quoſcunque euentus, Anni famoſi magis, quàm mirabilis, 1588.
-
-    _ The Title, or Inſcription.
-
-    _ Vna ex ſelectiſſimis Prophetijs Ambroſij Merlini.
-
-    _ The Concluſion, or Epilog of the former Section.
-
-    _ The famous Propheſie of 88. vulgarly fathered vpon Ioannes Regiomontanus; but woorthily ſuſpected by ſome learnedermen, neuer to haue proceeded from that excellent Mathematician, or any like notable Scholler.
-
-    _ The concluſion of this latter part.
+    _ Eiuſdem Ioannis Harueij Epiphonematicum votum, ad auertendum quoſcunque euentus, Anni famoſi magis, quàm mirabilis, 1588.
 
 **Types of content**
 
